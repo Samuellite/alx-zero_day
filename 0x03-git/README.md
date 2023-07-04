@@ -1,1 +1,1 @@
-My God is good
+My wife is beautiful 
